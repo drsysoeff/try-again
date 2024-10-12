@@ -1,2 +1,2 @@
-# try-again
+# try-again/ полная хрень и бред
 try again
